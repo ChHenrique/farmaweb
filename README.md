@@ -32,7 +32,7 @@ Gostaríamos de ouvir você!
 
 Deixe um comentário, mande-nos uma mensagem ou siga-nos nas redes sociais. Estamos aqui para ajudar e responder a todas as suas perguntas.
 
-- **Instagram:** [(https://www.instagram.com/farma__web/)]
+- **Instagram:** (https://www.instagram.com/farma__web/)
 
 ---
 
